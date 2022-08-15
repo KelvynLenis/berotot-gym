@@ -9,5 +9,8 @@
 
 ![preview img](/preview.png)
 
+![ezgif-5-16d4433903](https://user-images.githubusercontent.com/52057929/184653622-48b21de2-41d0-484f-ba22-7e63cdbcefd0.gif)
+
+
 [Credits](https://youtu.be/ddaY0rHqMxM)
 
